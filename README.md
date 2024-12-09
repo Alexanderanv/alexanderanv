@@ -10,7 +10,7 @@
 
 ### Контакты
 
-Telegram: @Alexander_Anufriev
+Telegram: [@Alexander_Anufriev](https://t.me/Alexander_Anufriev)
 
 ## 📜 Мои навыки
 
